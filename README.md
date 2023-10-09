@@ -1,0 +1,1 @@
+# politica_de_privacidade_bloco_de_notas
